@@ -12,4 +12,4 @@
 [![](https://visitcount.itsvg.in/api?id=foxytouxxx&label=Profil%20View%20Counter&color=6&icon=3&pretty=false)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/kevinrsl23) 
+  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/gedanggoreng1998) 
